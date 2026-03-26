@@ -2,4 +2,4 @@
 <img src="https://komarev.com/ghpvc/?username=bok-su&color=red"
 </p>
 
-wip :-)
+w1p, 1 st1ll need to f1gure th1s stuff out
