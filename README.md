@@ -8,6 +8,6 @@
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31mw3fmyzfyecwu6h6e4oyy3i7ua&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mw3fmyzfyecwu6h6e4oyy3i7ua&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mw3fmyzfyecwu6h6e4oyy3i7ua&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
