@@ -7,7 +7,13 @@
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/eca9e861-4e11-486a-9675-bb963f729447" />
 
 <p align="center">
+<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/09e7c069-7a4d-4c7d-8a43-5775dc49d703" />
+
+
+
+<p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31mw3fmyzfyecwu6h6e4oyy3i7ua&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mw3fmyzfyecwu6h6e4oyy3i7ua&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
+
