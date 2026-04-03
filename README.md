@@ -17,3 +17,6 @@
   </a>
 </p>
 
+<p align="center">
+<a href="https://boksu.atabook.org">atabook</a> / <a href="https://fishtag.straw.page/">strawpage</a>
+</p>
