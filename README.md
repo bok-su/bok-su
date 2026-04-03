@@ -20,3 +20,5 @@
 <p align="center">
 <a href="https://boksu.atabook.org">atabook</a> / <a href="https://fishtag.straw.page/">strawpage</a>
 </p>
+<p align="center">
+<sub>art creds to @nosology on g1thub :D</sub>
