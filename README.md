@@ -25,4 +25,4 @@ currently l1sten1ng to ...
 <p align="center">
 --
 <p align="center">
-hello :D 1'm usually max zoomed 1nto the game when play1ng so sorry 1f ur 1n my fr1ends l1st and 1 don't see u x_x
+hello :D 1'm usually max zoomed 1nto the game when play1ng or offtab, so sorry 1f ur 1n my fr1ends l1st and 1 don't see u x_x
