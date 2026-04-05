@@ -25,10 +25,10 @@ currently l1sten1ng to ...
 <p align="center">
 --
 <p align="center">
-hello :D 1'm usually max zoomed 1nto the game when play1ng or offtab, so sorry 1f ur 1n my fr1ends l1st and 1 don't see u x_x
+hello :D 1'm usually max zoomed 1nto the game when play1ng or offtab, so sorry 1f ur 1n my fr1ends l1st or wh1sper me and 1 don't see x_x
 <p align="center">
 oh my dear green names you are all amaz1ng ... you are my sunsh1nes, my only sunsh1nes.. you make me happy when sk1es are grey... hahhahahah.......
 <p align="center">
 -
 <p align="center">
-1 w1ll never jo1n ANY cuddle puddle under any c1rcumstances /hj !!!! 1'm f1ne start1ng them or someth1ng but jo1n1ng one feels l1ke that one "who 1s th1s?" meme but if you're @nosology ill go anywhere you go / mostly nonverbal 1f we aren't fr1ends or convo 1ns't usually 1n1t1ated between us :D
+1 w1ll never jo1n ANY cuddle puddle under any c1rcumstances /hj !!!! 1'm f1ne start1ng them or someth1ng but jo1n1ng one feels l1ke that one "who 1s th1s?" meme but 1f you're @nosology 1ll go anywhere you go / mostly nonverbal 1f we aren't fr1ends or convo 1ns't usually 1n1t1ated between us :D
