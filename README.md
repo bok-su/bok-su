@@ -31,4 +31,4 @@ oh my dear green names you are all amaz1ng ... you are my sunsh1nes, my only sun
 <p align="center">
 -
 <p align="center">
-1 w1ll never jo1n ANY cuddle puddle under any c1rcumstances /hj !!!! 1'm f1ne start1ng them or someth1ng but jo1n1ng one feels l1ke that one "who 1s th1s?" meme but 1f you're @nosology 1ll go anywhere you go / mostly nonverbal 1f we aren't fr1ends or convo 1ns't usually 1n1t1ated between us :D
+1 w1ll never jo1n ANY cuddle puddle under any c1rcumstances /hj !!!! 1'm f1ne start1ng them or someth1ng but jo1n1ng one feels l1ke that one "who 1s th1s?" meme / mostly nonverbal 1f we aren't fr1ends or convo 1ns't usually 1n1t1ated between us. 1 am st1ll happy to talk w1th anyone tho, espec1ally my beut1ful sunsh1ne green names ...
