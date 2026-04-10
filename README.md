@@ -25,7 +25,7 @@ currently l1sten1ng to ...
 <p align="center">
 --
 <p align="center">
-(psst... 1'm a f1ct1onk1n) hello :D 1'm usually max zoomed 1nto the game when play1ng or offtab, so sorry 1f ur 1n my fr1ends l1st or wh1sper me and 1 don't see x_x
+hello :D 1'm usually max zoomed 1nto the game when play1ng or offtab, so sorry 1f ur 1n my fr1ends l1st or wh1sper me and 1 don't see x_x
 <p align="center">
 oh my dear green names you are all amaz1ng ... you are my sunsh1nes, my only sunsh1nes.. you make me happy when sk1es are grey... hahhahahah.......
 <p align="center">
