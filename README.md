@@ -16,9 +16,6 @@ currently l1sten1ng to ...
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mw3fmyzfyecwu6h6e4oyy3i7ua&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
-
-<p align="center">
-<a href="https://boksu.atabook.org">atabook</a> / <a href="https://fishtag.straw.page/">strawpage</a>
 </p>
 <p align="center">
 <sub>art creds to @nosology / @babystery on g1thub :D</sub>
