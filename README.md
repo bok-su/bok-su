@@ -18,16 +18,16 @@ currently l1sten1ng to ...
 </p>
 </p>
 <p align="center">
-<sub>art creds to @nosology on g1thub :D</sub>
+<sub>art creds to @nosology on github :D</sub>
 <p align="center">
 --
 <p align="center">
-hello :D 1'm usually max zoomed 1nto the game when play1ng or offtab, so sorry 1f ur 1n my fr1ends l1st or wh1sper me and 1 don't see x_x
+hello :D i'm usually max zoomed into the game when playing or offtab, so sorry if ur in my fr1ends list or whisper me and i don't see x_x
 <p align="center">
-oh my dear green names you are all amaz1ng ... you are my sunsh1nes, my only sunsh1nes.. you make me happy when sk1es are grey... hahhahahah.......
+oh my dear green names you are all amazing ... you are my sunshines, my only sunshines.. you make me happy when sk1es are grey... hahhahahah.......
 <p align="center">
 -
 <p align="center">
-1'm aut1st1c and 1 somet1mes m1ght get exc1ted over small th1ngs or 1'm just generally emot1onal ... hope you don't m1nd ^_^
+uhmm just check my pronouns cc to get a good understanding on how interacting with me is like!! i'm a complex person with complex disorders. but i have enough common sense, don't worrys!!!! ^_^
 <p align="center">
-<sub>mostly nonverbal 1f we aren't fr1ends or convo 1ns't usually 1n1t1ated between us. 1 am st1ll happy to talk w1th anyone tho, espec1ally my beut1ful sunsh1ne green names ...</sub>
+<sub>mostly nonverbal if we aren't friends or convo ins't initiated between us. i am still happy to talk with anyone, or sit in silence...</sub>
