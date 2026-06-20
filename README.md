@@ -18,7 +18,7 @@ currently l1sten1ng to ...
 </p>
 </p>
 <p align="center">
-<sub>art creds to @nosology / @babystery on g1thub :D</sub>
+<sub>art creds to @nosology on g1thub :D</sub>
 <p align="center">
 --
 <p align="center">
